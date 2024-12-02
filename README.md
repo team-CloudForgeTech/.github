@@ -5,6 +5,7 @@
 
 ### 如何加入 请发送申请邮件至
 Fack-BUG@yb-cloud.top
+Fack-BUG@fack-bug.asia
 
 ### 联系
 网站：
