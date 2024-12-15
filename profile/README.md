@@ -4,13 +4,11 @@
 团队争取在2027年之前<br/>创办出有规模、有技术，兼网络安全、软件开发、IT技术知识体系编写的工作室
 
 ### 如何加入 请发送申请邮件至
-Fack-BUG@yb-cloud.top
-Fack-BUG@fack-bug.asia
+ztywl@firefun.cn
 
 ### 联系
 网站：
-https://www.fack-bug.asia/
+https://zuotiya.com/
 
 邮箱:
-Fack-BUG@yb-cloud.top
-Fack-BUG@fack-bug.asia
+ztywl@firefun.cn
