@@ -7,7 +7,7 @@ SF-TechAdmin@sftech.asia
 
 ### 联系
 网站：  
-[网页跳转](https://sf-tech.zuotiya.com/)
+[网页跳转](https://home.sftech.asia/)
 
 邮箱:  
 SF-TechAdmin@sftech.asia
