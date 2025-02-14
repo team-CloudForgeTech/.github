@@ -16,6 +16,6 @@
 SF-TechAdmin@sftech.asia
 
 #### QQ官方群聊：
-![官方QQ群](https://github.com/user-attachments/assets/734127e3-20fe-4e5a-a2d7-2709adac5977)
+![官方QQ群](https://github.com/user-attachments/assets/aa5359ae-e0a4-42b8-8cba-410cb22d43e3)
 #### 微信官方群聊：
 ![官方微信群](https://github.com/user-attachments/assets/3c718ead-f71d-4cc4-99e9-60c577bf3770)
