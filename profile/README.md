@@ -6,7 +6,7 @@
 **或从下面扫码加群 进群联系管理员** 
 
 ### 网站：  
-[官网跳转](https://home.sftech.asia/)  
+[官网跳转](https://www.sftech.asia/)  
 [官方Wiki跳转](https://wiki.sftech.asia/)  
 [帮助文档跳转](https://icn7i9p5nojn.feishu.cn/wiki/BgVOwPVciicUk1k3h0Qc7T2MnKb?from=from_copylink)  
 
